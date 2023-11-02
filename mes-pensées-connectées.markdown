@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Mes idées connectées
+title: Mes pensées connectées
 permalink: /idees-connectees/
 ---
 
