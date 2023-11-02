@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Mes pensées connectées
-permalink: /idees-connectees/
+permalink: /pensees-connectees/
 ---
 
 L'évolution de mes pensées connectées, au fil du temps : 
