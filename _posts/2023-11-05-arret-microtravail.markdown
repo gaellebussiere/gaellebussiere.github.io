@@ -26,7 +26,7 @@ J'ai donc installé ces applications et pour les autres, je me suis dis que je p
 
 Les premiers jours avec ce nouveau téléphone ont été mémorables. J'ai pas mal de transports pour aller travailler et j'avais l’habitude d’en profiter pour traiter mes mails pro. Mais là, je ne pouvais pas. Alors j’ai commencé à explorer ma liste de podcasts non lus. Elle était très longue (je n'avais jamais le temps de les écouter !) sur des thèmes qui m'intéressent. J’ai donc trouvé facilement mon bonheur et c’était parti pour une heure et demi d'écoute ininterrompue, matin et soir.
 
-Rapidement, je me suis rendu compte que j'arrivais au travail avec une nouvelle énergie (idem pour le retour à la maison). Au lieu d'être stressée (par mes mails, traités à moitié dans le train), j'avais appris des choses sur un thème qui m'intéressait. Bref, ma dynamique de début et de fin de journée étaiy complètement différente. Depuis, j'ai gardé ce vieux téléphone et le microtravail est sorti de ma vie, et tant mieux !
+Rapidement, je me suis rendu compte que j'arrivais au travail avec une nouvelle énergie (idem pour le retour à la maison). Au lieu d'être stressée (par mes mails, traités à moitié dans le train), j'avais appris des choses sur un thème qui m'intéressait. Bref, ma dynamique de début et de fin de journée était complètement différente. Depuis, j'ai gardé ce vieux téléphone et le microtravail est sorti de ma vie, et tant mieux !
 
 Au final, face au défi des écrans, ma solution depuis cette époque est de cloisonner mes usages sur des appareils différents. J'évite ainsi les tentations. J'ai maintenant :
 
