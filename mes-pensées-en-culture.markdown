@@ -10,4 +10,4 @@ C’est avec cette intention, partager mes “pensées en culture”, que je dé
 
 A très bientôt donc, pour la publication de [mes premières pensées](https://gaellebussiere.github.io/) !
 
-![Mes pensées en culture](213164151-jeunes-plants-de-maïs-dans-le-champ-jeunes-plants-de-maïs-au-soleil.jpeg)
+![Mes pensées en culture](../culture.jpeg)
