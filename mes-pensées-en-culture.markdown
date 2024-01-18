@@ -9,3 +9,5 @@ Lire, écouter, noter et cogiter, voici quelques unes de mes activités favorite
 C’est avec cette intention, partager mes “pensées en culture”, que je développe cet espace numérique. Je l’imagine comme “mon jardin numérique”. Mes pensées sont cultivés à l’aide d’engrais (mes lectures, mes écoutes, mes discussions). Elles sont en développement. Certaines grandiront mieux que d’autres. C’est bien normal et finalement peu important car mon objectif est uniquement celui du perfectionnement (et non du perfectionnisme).
 
 A très bientôt donc, pour la publication de [mes premières pensées](https://gaellebussiere.github.io/) !
+
+![Mes pensées en culture](213164151-jeunes-plants-de-maïs-dans-le-champ-jeunes-plants-de-maïs-au-soleil.jpeg)
