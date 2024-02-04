@@ -1,10 +1,8 @@
 ---
+published: true
+title: Témoignage de femme
 layout: post
-title:  "Témoignage de femme"
-date:   2024-02-04 12:00:13 +0100
-categories: presentation blog
 ---
-
 Cette semaine j’ai témoigné de mon parcours de vie (professionnel et personnel) dans le cadre d’un programme de formation pour soutenir le développement de la carrière professionnelle des femmes. Le thème de la journée était “l'affirmation de soi”, une problématique effectivement très importante.
 
 En préparant mon témoignage, j’avais le souhait de délivrer trois messages. 
