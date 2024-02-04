@@ -25,8 +25,8 @@ J’ai trouvé cette expérience de partage très enrichissante.
 
 Avec le recul, mes regrets sont peut-être de ne pas avoir explicitement dit “ces choix sont les miens, d’autres sont très bien aussi”. J’ai par exemple beaucoup exposé mon statut de mère, ce qui peut ajouter à l'injonction selon laquelle une femme ne se réalise totalement qu’en incluant la maternité dans ses réussites. J’aurais pu aussi proposer mes “trucs et astuces” qui m’aident aujourd'hui à m'affirmer : 
 
-- Être bienveillante quand je me parle (je suis “ma meilleure amie”),
-- Accepter la lenteur (je serai évaluée sur mes réalisations, pas mes mots), 
-- Faire une seule chose à la fois (limitation de la charge mentale et meilleure analyse des situations).
+- Être bienveillante quand je me parle (je suis “ma meilleure amie” en quelque sorte),
+- Accepter la lenteur (je me dis que je serai évaluée sur mes réalisations, pas les pensées des autres), 
+- Faire une seule chose à la fois (je limite ainsi ma charge mentale et je fais de meilleures analyses des situations).
 
 Et enfin, j’aurais pu clairement indiquer que ces processus d'affirmation sont en cours, que je n’arrive pas toujours à les utiliser comme je le souhaiterais et que partager mes expériences avec d’autres femmes est, dans ces situations, toujours d’une grande aide.
