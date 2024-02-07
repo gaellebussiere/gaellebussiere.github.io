@@ -16,4 +16,4 @@ Bien sûr, je ressens le besoin d'ajuster mon organisation pour ne pas mettre le
 
 Aussi loin que je m'en souvienne, j'ai toujours eu un intérêt particulier pour “le temps”. Le temps qui passe, le ressenti du temps, sa plasticité et en même temps sa rigidité. C'est un sujet fascinant. 
 
-Le temps sera sans aucun doute le thème d'autres billets de ce blog, mais pour ce matin, je vais m'arrêter là (mon RER arrive en station, et je suis satisfaite de ce temps agréable, occupé par l'écriture !). 
+Le temps sera sans aucun doute le thème d'autres billets de ce blog, mais pour ce matin, je vais m'arrêter là (mon RER arrive en station, et je suis satisfaite de ce moment agréable, occupé par l'écriture !). 
