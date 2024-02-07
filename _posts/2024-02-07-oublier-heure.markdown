@@ -11,7 +11,7 @@ Bien sûr, je ressens le besoin d'ajuster mon organisation pour ne pas mettre le
 
 - De programmer mon téléphone pour me rappeler la fin d'un “moment plaisir”. Je pourrais ainsi rester dans ma bulle, sans préoccupation vis à vis du temps qui passe.
 - De prévoir moins de choses à faire dans une journée (un sacré défi !). De privilégier ainsi la qualité plutôt que la quantité. 
-- De partir très avance pour mes RDVs. D'apprécier les moments d'attente sur le chemin chemin ou à mon arrivée.
+- De partir très avance pour mes RDVs. D'apprécier les moments d'attente sur le chemin ou à mon arrivée.
 - D'être ponctuelle seulement avec les autres, et de prendre le temps, pour ce qui me concerne, de suivre mes envies, sans planification. 
 
 Aussi loin que je m'en souvienne, j'ai toujours eu un intérêt particulier pour “le temps”. Le temps qui passe, le ressenti du temps, sa plasticité et en même temps sa rigidité. C'est un sujet fascinant. 
