@@ -5,7 +5,7 @@ layout: post
 ---
 Ces derniers temps, je multiplie les retards. J'oublie de recharger ma carte de transports en avance, de préparer mon itinéraire, de partir suffisamment tôt pour arriver à l'heure, ou de descendre à ma station de métro ou de RER. Moi qui suis habituellement particulièrement organisée et ponctuelle, mon entourage s'interroge. 
 
-On pourrait en effet penser que je suis fatiguée ou que je subis un excès de stress. Mais il n'en est rien. Je découvre à l'inverse, les bienfaits du lâcher prise et de la lenteur. Ainsi, je profite mieux de l'instant présent, et je le fais aussi longtemps que possible (et donc, j'oublie l'heure !).
+On pourrait en effet penser que je suis fatiguée ou que je subis un excès de stress. Mais il n'en est rien. Je découvre, à l'inverse, les bienfaits du lâcher prise et de la lenteur. Ainsi, je profite mieux de l'instant présent, et je le fais aussi longtemps que possible (et donc, j'oublie l'heure !).
 
 Bien sûr, je ressens le besoin d'ajuster mon organisation pour ne pas mettre les personnes avec qui je vis ou je travaille dans des situations inconfortables. Mais je tiens à garder ce rapport plus apaisé au temps, il me fait du bien. Je vais donc expérimenter :
 
