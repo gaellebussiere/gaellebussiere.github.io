@@ -3,7 +3,7 @@ published: true
 title: Expérience de coaching
 layout: post
 ---
-En Juillet 2023, je débutais un accompagnement avec une “coach”. 8 mois plus tard, l'accompagnement se termine et les résultats obtenus sont plutôt intéressants. Je vous raconte.
+L'été dernier, je débutais un accompagnement avec une “coach”. 8 mois plus tard, l'accompagnement se termine et les résultats obtenus sont plutôt intéressants. Je vous raconte.
 
 - **Etape 1 : la décision de m'engager** 
 
