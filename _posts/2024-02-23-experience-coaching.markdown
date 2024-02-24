@@ -15,7 +15,7 @@ Il faut dire que je suis à un moment particulier de ma vie. Après des interrog
 
 - **Etape 2 : les premières séances pendant l'été** 
 
-Celles-ci ont lieu en Juillet 2023. J'ai en effet attendu qu'une place se libère, pour travailler avec Sandra. Cela ne me dérange pas, au contraire. L'été est une période propice aux projets et j'ai le temps de clarifier mes attentes vis-à-vis de ce coaching. Je veux donc 1) être bousculée pour sortir de ma zone de confort et ainsi 2) m'engager dans des associations. Un plan simple et basique, comme je les aime !
+Celles-ci ont lieu en Juillet 2023. J'ai en effet attendu qu'une place se libère, pour travailler avec Sandra. Cela ne me dérange pas, au contraire. L'été est une période propice aux projets et j'ai le temps de clarifier mes attentes vis-à-vis de ce coaching. Je veux donc 1) être bousculée pour sortir de ma zone de confort et ainsi 2) m'engager dans des associations pour aider. Un plan simple et basique, comme je les aime !
 
 Mais voilà, à l'issue des premières séances ce que je retiens surtout c'est autre chose. Je me sens “légère”, je respire. Je comprends que ce que j'apprécie avant tout, c'est de disposer d'un espace où seule ma personne est importante. Je parle et ma coach m'écoute, me relance, me pousse à clarifier mes idées et identifier mes ressentis corporels. Ces temps sont précieux et ils me font du bien.
 
