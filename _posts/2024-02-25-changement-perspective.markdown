@@ -3,7 +3,7 @@ published: true
 title: Changement de perspective
 layout: post
 ---
-Ce blog me donne l'opportunité de rechercher des anciens textes que j'avais rédigé, dans des contextes divers et variés. J'en retrouve un aujourd'hui. Il date de Juin 2022 et je l'avais intitulé "lettre aux hommes féministes". Sa relecture est intéressante, car ma perspective des choses aujourd'hui, est bien différente de celle que j'avais initialement. Je vais essayer de vous expliquer pourquoi.
+Ce blog me donne l'opportunité de rechercher des anciens textes que j'avais rédigé, dans des contextes divers et variés. J'en retrouve un aujourd'hui. Il date de Juin 2022 et je l'avais intitulé "lettre aux hommes féministes". Sa relecture est intéressante, car ma perspective des choses aujourd'hui, est différente de celle que j'avais initialement. Je vais essayer de vous expliquer pourquoi.
 
 Pour commencer voici le texte :
 > Les 38 premières années de ma vie, le mot féminisme a eu peu de signification pour moi. L’égalité des femmes avec les hommes était actée dans mon esprit. J’avais la chance de vivre une époque qui me permettait de profiter des droits gagnés lors de combats qui me semblaient lointains. Professionnellement, j’avais progressé régulièrement et je n’avais jamais eu le sentiment qu’être une femme pouvait avoir été un frein. Alors que s’est il passé quand j’ai eu 38 ans ?
