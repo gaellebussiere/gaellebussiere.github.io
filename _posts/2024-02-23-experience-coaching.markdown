@@ -9,9 +9,22 @@ L'été dernier, je débutais un accompagnement avec une “coach”. 8 mois plu
 
 En Février 2023, je me promène sur Internet. Je consulte le site [des équilibristes](https://www.lesequilibristes.com/podcasts), un podcast que j'apprécie depuis quelques mois. La personne qui l'anime, Sandra, est calme et joyeuse. J'aime beaucoup la façon dont elle déroule ses entretiens. Sur son site, je découvre qu'elle a une offre de “coaching” et propose un premier RDV en visio pour en parler. Curieuse d'en savoir plus, je lui envoie une demande.
 
-Notre première visio a lieu quelques semaines plus tard (Avril 2023). Sandra m'explique sa méthode de coaching (elle serait là pour moi, ne me conseillerait pas vraiment, mais m'aiderait plutôt à avancer dans la direction que j'aurais choisie). Ok. Cela semble intéressant, j'apprécie l'idée de rester aux commandes du déroulement des séances de coaching et je suis motivée. Puis elle me donne le tarif. Gloups… Je trouve la facture salée. Je me dis : “*merci, mais non merci, je vais me débrouiller toute seule*”.
+Notre première visio a lieu quelques semaines plus tard (Avril 2023). Sandra m'explique sa méthode de coaching (elle serait là pour moi, ne me conseillerait pas vraiment, mais m'aiderait plutôt à avancer dans la direction que j'aurais choisie). Ok. Cela semble intéressant, j'apprécie l'idée de rester aux commandes du déroulement des séances de coaching et je suis motivée. Puis elle me donne le tarif. Gloups… Je trouve la facture salée. Je me dis : 
+>“*Merci, mais non merci, je vais me débrouiller toute seule*”.
 
-Il faut dire que je suis à un moment particulier de ma vie. Après des interrogations nombreuses concernant mon travail (partir ou rester ?), j'ai décidé de rester, mais de moins travailler (drastiquement) et d'utiliser ce temps libéré pour “autre chose”. Cet autre chose s'oriente vers l'envie de rendre, autour de moi, les chances qui sont les miennes. J'écris alors ces mots à une amie “*Je crois que ce qui me gêne, c'est que payer cette somme me renvoit à ma position sociale hyper privilégiée, alors que justement, j'aimerais aider celles et ceux qui le sont moins....*”. Elle me répond “*Il y a quelques années, j'ai fait appel à une coach pour m'aider à identifier ce que je voulais faire. Le tarif était équivalent à ce que tu annonces.*” Elle ajoute ensuite : “*C'est sûr que tout le monde ne peut pas payer cette somme, mais je ne le vois pas comme une dépense inutile. Tu pourrais rester dans ta zone de confort alors que ce que tu en feras pourra t'aider à aider les autres.*” et elle conclut “*L'objectif derrière cette dépense est plus grand. C'est nécessaire pour pouvoir aider*”. J'adore la finesse d'esprit de cette amie. Elle a su trouver les mots justes pour me convaincre. Je décide donc de me lancer avec un budget pour 8 séances. 
+Il faut dire que je suis à un moment particulier de ma vie. Après des interrogations nombreuses concernant mon travail (partir ou rester ?), j'ai décidé de rester, mais de moins travailler (drastiquement) et d'utiliser ce temps libéré pour “autre chose”. Cet autre chose s'oriente vers l'envie de rendre, autour de moi, les chances qui sont les miennes. J'écris alors ces mots à une amie :
+>“*Je crois que ce qui me gêne, c'est que payer cette somme me renvoit à ma position sociale hyper privilégiée, alors que justement, j'aimerais aider celles et ceux qui le sont moins....*”. 
+
+Elle me répond :
+>“*Il y a quelques années, j'ai fait appel à une coach pour m'aider à identifier ce que je voulais faire. Le tarif était équivalent à ce que tu annonces.*” 
+
+Elle ajoute ensuite : 
+>“*C'est sûr que tout le monde ne peut pas payer cette somme, mais je ne le vois pas comme une dépense inutile. Tu pourrais rester dans ta zone de confort alors que ce que tu en feras pourra t'aider à aider les autres.*” 
+
+Et elle conclut :
+>“*L'objectif derrière cette dépense est plus grand. C'est nécessaire pour pouvoir aider*”. 
+
+J'adore la finesse d'esprit de cette amie. Elle a su trouver les mots justes pour me convaincre. Je décide donc de me lancer avec un budget pour 8 séances. 
 
 - **Etape 2 : les premières séances pendant l'été** 
 
@@ -29,10 +42,10 @@ Entre les séances, je me saisis de l'opportunité d’écrire à ma coach. Pour
 
 Hier, ma dernière des 8 séances avait lieu. Alors que nous nous étions parlées exclusivement par téléphone à partir de Septembre, nous nous sommes connectées en visio pour “nous voir”. C'était chouette.
 
-Je ressors de cet accompagnement confortée dans ma volonté de limiter avec rigueur mon temps de travail, c'est la clé de ma réussite. Je ressens une envie renouvellée de “transmettre” (ce blog en est d'ailleurs une première réalisation), de porter des valeurs fortes de partage et de solidarité et j'ai renoué avec ma passion de jeunesse (le Basket). Je suis engagée comme bénévole dans deux associations et j'ai pris ma carte dans un parti politique (une grande première). Je suis mieux à l'écoute de mes ressentis corporels, et je prends conscience de la puissance de cette nouvelle boussole de mes émotions. Elle m'est très utile pour analyser les situations, et prendre des décisions. 
+Je ressors de cet accompagnement confortée dans ma volonté de limiter avec rigueur mon temps de travail, c'est la clé de ma réussite. Je ressens une envie renouvelée de “transmettre” (ce blog en est d'ailleurs une première réalisation), de porter des valeurs fortes de partage et de solidarité et j'ai renoué avec ma passion de jeunesse (le Basket). Je suis engagée comme bénévole dans deux associations et j'ai pris ma carte dans un parti politique (une grande première). Je suis mieux à l'écoute de mes ressentis corporels, et je prends conscience de la puissance de cette nouvelle boussole de mes émotions. Elle m'est très utile pour analyser les situations, et prendre des décisions. 
 
 - **Etape 5 : et la suite ?**
 
-J'ai l'impression de me retrouver au milieu d'un jardin qui aurait été entièrement débarrassé des herbes envahissantes. Autour de moi, tout est dégagé et la vue est magnifique. Bien sûr, garder les choses en l'état va me demander du temps et de l'investissement, mais je vais le faire petit à petit, à mon rythme, en suivant mes envies, et en saisissant au vol les opportunités qui se présenteront à moi.
+J'ai l'impression de me retrouver au milieu d'un jardin qui aurait été entièrement débarrassé des herbes envahissantes. Autour de moi, tout est dégagé et la vue est magnifique. Je sais que garder les choses en l'état va me demander du temps et de l'investissement, mais je vais le faire petit à petit, à mon rythme, en suivant mes envies, et en saisissant au vol les opportunités qui se présenteront à moi.
 
-En parlant d'opportunité, une réussite professionnelle récente me permet d'imaginer en 2028-2029 (année de mes 50 ans - comment cela pourrait-il être un hasard ?), de m'offrir une année de césure à mon travail. Partir mais ensuite revenir, ce projet me remplit de joie ! Je ne sais encore pas de quoi cette année sera faite, mais je suis confiante dans ma capacité à la remplir agréablement, avec l'accompagnement d'une coach d'ailleurs, très certainement :)
+En parlant d'opportunité, une réussite professionnelle récente me permet d'imaginer en 2028-2029 (année de mes 50 ans - comment cela pourrait-il être un hasard ?), de m'offrir une année de césure à mon travail. Partir mais ensuite revenir, je n'avais jamais envisagé les choses ainsi, au travail. Et ce projet me remplit de joie ! Je ne sais pas encore de quoi cette année de pause sera faite, mais je suis confiante dans ma capacité à la remplir agréablement, avec l'accompagnement d'une coach d'ailleurs, très certainement :)
