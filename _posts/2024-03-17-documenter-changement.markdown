@@ -13,7 +13,7 @@ Au jour le jour, j’ai ainsi besoin d'un équilibre entre les deux. Mais commen
 Dans un épisode de [ce podcast](https://fullfocus.co/ltw-podcast-episode-1/), j'ai entendu l’adage suivant : 
 > “si on surestime ce que l'on peut faire en une journée, on sous-estime souvent ce que l'on peut faire en une année”. 
 
-Effectivement. Une des raisons pour lesquelles appréhender le changement est un défi, c’est que bien souvent, on se projette immédiatement dans le résultat final (“cela serait tellement génial si je pouvais parler avec aisance en anglais avec mes collègues”) plutôt dans la mise en place de la routine qui permettra la réalisation de cette envie (“je vais échanger une phrase en anglais chaque jour avec une personne de mon travail qui vient d’un pays non francophone”). Peu importe si mes actions sont imparfaites (faire des erreurs dans mon expression en Anglais par exemple), car finalement :
+Effectivement. Une des raisons pour lesquelles appréhender le changement est un défi, c’est que bien souvent, on se projette immédiatement dans le résultat final (“cela serait tellement génial si je pouvais parler avec aisance en anglais avec mes collègues”) plutôt que dans la mise en place de la routine qui permettra la réalisation de cette envie (“je vais échanger une phrase en anglais chaque jour avec une personne de mon travail qui vient d’un pays non francophone”). Peu importe si mes actions sont imparfaites (faire des erreurs dans mon expression en Anglais par exemple), car finalement :
 > “dans une année, je serai contente d’avoir commencé aujourd’hui”.
 
 Un second adage très utile !
