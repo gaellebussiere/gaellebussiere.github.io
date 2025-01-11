@@ -14,8 +14,8 @@ Ainsi, mon ressenti doit être celui de la satisfaction. Avec l'expérience, j'a
 
 Disposer du temps juste pour faire les choses (ni trop, ni pas assez) est donc au cœur de ma stratégie pour atteindre la satisfaction. 
 
-C'est donc dans ce contexte que je bloque religieusement, depuis 6 mois déjà, du temps “Recherche” dans mon emploi du temps, et je m'y tiens. Mais les résultats ne sont pas ceux imaginés… loin de là. Je ressens que la “flamme” de la recherche scientifique ne brûle plus autant en moi. Ma mémorisation est laborieuse, les idées sont rares, le plaisir de faire est limité et à dire vrai, je m'ennuie. C'est un peu comme si je me savais attendue ailleurs…
+C'est donc dans ce contexte que je bloque religieusement depuis 6 mois déjà, du temps “Recherche” dans mon emploi du temps, et je m'y tiens. Mais les résultats ne sont pas ceux imaginés… loin de là. Je ressens que la “flamme” de la recherche scientifique ne brûle plus autant en moi. Ma mémorisation est laborieuse, les idées sont rares, le plaisir de faire est limité et à dire vrai, je m'ennuie. C'est un peu comme si je me savais attendue ailleurs…
 
 Alors c'est décidé, ma carrière de chercheuse va prendre fin en 2028. A l'instar du sélectionneur, je pense que j'ai fait mon temps, et c'est très bien ainsi. 
 
-D'ici là, il me reste aussi un très beau défi à mener. Celui d'accompagner, du mieux que je peux, le travail de thèse de deux jeunes scientifiques (en espérant qu’ils aient au final, eux aussi, une belle coupe à soulever :)
+D'ici là, il me reste aussi "mon mondial" à gagner. J'ai en effet le projet d'accompagner sur la période 2025-2028, le travail de thèse d'un jeune chercheur et d'une jeune chercheuse. Et l'envie de bien faire est là ! Pour qu’il/elle aient au final, aussi, une belle coupe à soulever :)
