@@ -18,4 +18,4 @@ C'est donc dans ce contexte que je bloque religieusement depuis 6 mois déjà, d
 
 Alors c'est décidé, ma carrière de chercheuse va prendre fin en 2028. A l'instar du sélectionneur, je pense que j'ai fait mon temps, et c'est très bien ainsi. 
 
-D'ici là, il me reste aussi "mon mondial" à gagner. J'ai en effet le projet d'accompagner sur la période 2025-2028, le travail de thèse d'un jeune chercheur et d'une jeune chercheuse. Et l'envie de bien faire est là ! Pour qu’il/elle aient au final, une belle coupe à soulever :)
+D'ici là, il me reste aussi "mon mondial" à gagner. J'ai en effet le projet d'accompagner sur la période 2025-2028, le travail de thèse d'un jeune chercheur et d'une jeune chercheuse. C'est ambitieux, mais l'envie de bien faire est là ! Pour qu’il/elle aient au final, une belle coupe à soulever :)
