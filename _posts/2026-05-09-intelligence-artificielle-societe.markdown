@@ -10,18 +10,18 @@ Pour commencer, il faut savoir que dans la vie, je suis une personne fortement a
 
 En tant que scientifique, je comprends maintenant assez bien le fonctionnement des LLMs, ces modèles d'intelligence artificielle qui sont à la base du fonctionnement des chatbots tels que ChatGPT. Je suis rassurée car il n'y a rien de "magique" (heureusement !), mais je suis également émerveillée par la prouesse technologique qu'ils représentent. Je pense sincèrement que ce sont des technologies de rupture, et que nous vivons une période unique scientifiquement ! Mais je pense aussi que les usages associés bousculent les habitudes (les miennes déjà, mais c'est sans vrai intérêt :), mais surtout celles de la société tout entière (et là, il y a un vrai sujet !). **Le monde du travail, celui de l'éducation, les problématiques environnementales et sécuritaires... Voici les grands domaines auxquels je m'intéresse actuellement.**
 
-De façon générale, je dis "oui" à l'utilisation des IA (de toute façon, avons-nous vraiment le choix ?), mais cette utilisation devrait être associée à un questionnement méticuleux des impacts sur la société dans laquelle nous souhaitons évoluer, en termes d'opportunités et de risques. 
+De façon générale, si je dis "oui" à l'utilisation des IA (de toute façon, avons-nous vraiment le choix ?), je pense que cette utilisation devrait être associée à un questionnement méticuleux des impacts sur la société dans laquelle nous souhaitons évoluer, en termes d'opportunités et de risques. 
 
-Ainsi je vois déjà :
+Par exemple, je vois déjà des éléments très positifs tels que :
 
 1. L'opportunité de travailler moins,
 2. L'opportunité d'apprendre plus,
 3. L'opportunité de revenir aux fondamentaux des interactions humaines.
 
-Mais aussi :
+Mais je vois aussi des éléments de vigilance importants tels :
 
 1. Le risque de moins penser, de moins valoriser l'effort,
 2. Le risque d'une captivité technologique,
 3. Le risque de la perte de liberté. 
 
-Les choix de société qui seront faits dans les prochaines années me semblent critiques sur ces sujets, et à moins d'une année d'élections cruciales en France, j’aimerais des débats politiques qui tiennent compte de ces questions, et qui nous proposent de choisir. Mais les personnes qui nous dirigent en ont-elles intérêt ?
+Dans ce cobtexte, les choix de société qui seront faits dans les prochaines années me semblent critiques sur ces sujets, et à moins d'une année d'élections cruciales en France, j’aimerais des débats politiques qui tiennent compte de ces questions, et qui nous proposent de choisir. Mais les personnes qui nous dirigent en ont-elles intérêt ? Les prochains mois nous le dirons...
