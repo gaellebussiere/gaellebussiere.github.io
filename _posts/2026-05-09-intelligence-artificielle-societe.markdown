@@ -18,10 +18,10 @@ Par exemple, je vois déjà des éléments très positifs tels que :
 2. L'opportunité d'apprendre plus, en toute autonomie, 
 3. L'opportunité de revenir aux fondamentaux des interactions humaines, de ressentir de la joie et de vivre des moments de partage avec les autres.
 
-Mais je vois aussi des éléments de vigilance importants tels :
+Mais je vois aussi des éléments de vigilance importants tels que :
 
-1. Le risque de moins penser, de moins valoriser l'effort, de de laisser "assister" sans réfléchir aux conséquences pour nos cerveaux,
+1. Le risque de moins penser, de moins valoriser l'effort, de se laisser "assister" sans réfléchir aux conséquences pour nos cerveaux,
 2. Le risque d'une captivité technologique, avec des outils dont l'accès peut nous être retiré à tout moment,
 3. Le risque de la perte de liberté...
 
-Dans ce contexte, **les choix de société qui seront faits dans les prochaines années me semblent critiques sur ces sujets**, et à moins d'un an d'élections cruciales en France, j’aimerais des débats politiques qui tiennent compte de ces questions, et qui nous proposent de choisir le prochain modèle de société. Mais les personnes qui nous dirigent en ont-elles l'envie et l'intérêt ? Seuls les prochains mois nous le dirons...
+Dans ce contexte, **les choix de société qui seront faits dans les prochaines années me semblent critiques sur ces sujets**, et à moins d'un an d'élections cruciales en France, j’aimerais des débats politiques qui tiennent compte de ces questions, et qui nous proposent de choisir un prochain modèle de société. Mais les personnes qui nous dirigent en ont-elles l'envie et/ou l'intérêt ? Seuls les prochains mois nous le dirons...
