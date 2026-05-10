@@ -8,7 +8,9 @@ Il y a des moments de vie qui marquent la mémoire durablement. Et mon premier 
 
 Pour commencer, il faut savoir que dans la vie, je suis une personne fortement attachée au langage et aux mots. J'aime les lire, les écouter, les manipuler. Ils m'aident à réfléchir, à comprendre, à analyser, à m'apaiser. Dans ma tête tout est verbalisé. Mes émotions, mes réflexions, mes envies, mes joies et mes peines. Alors discuter avec un ordinateur reste (et restera sans aucun doute), une activité à la fois grisante et perturbante...
 
-En tant que scientifique, je comprends maintenant assez bien le fonctionnement des LLMs, ces modèles d'intelligence artificielle qui sont à la base du fonctionnement des chatbots tels que ChatGPT. Je suis rassurée car il n'y a rien de "magique" (heureusement !), mais je suis également émerveillée par la prouesse technologique qu'ils représentent. Je pense sincèrement que ce sont des technologies de rupture, et que nous vivons une période unique scientifiquement ! Mais je pense aussi que les usages associés bousculent les habitudes (les miennes déjà, mais c'est sans vrai intérêt :), mais surtout celles de la société tout entière (et là, il y a un vrai sujet !). **Le monde du travail, celui de l'éducation, les problématiques environnementales et sécuritaires... Voici les grands domaines auxquels je m'intéresse actuellement.**
+En tant que scientifique, je comprends maintenant assez bien le fonctionnement des LLMs, ces modèles d'intelligence artificielle qui sont à la base du fonctionnement des chatbots tels que ChatGPT. Je suis rassurée car il n'y a rien de "magique" (heureusement !), mais je suis également émerveillée par la prouesse technologique qu'ils représentent. Je pense sincèrement que ce sont des technologies de rupture, et que nous vivons une période unique scientifiquement ! Mais je pense aussi que les usages associés bousculent les habitudes (les miennes déjà, mais c'est sans vrai intérêt :), mais surtout celles de la société tout entière (et là, il y a un vrai sujet !). 
+
+**Le monde du travail, celui de l'éducation, les problématiques environnementales et sécuritaires... Voici les grands domaines auxquels je m'intéresse actuellement.**
 
 De façon générale, si je dis "oui" à l'utilisation des IA (de toute façon, avons-nous vraiment le choix ?), je pense que cette utilisation devrait être associée à un questionnement méticuleux des impacts sur la société dans laquelle nous souhaitons évoluer, en termes d'opportunités et de risques. 
 
@@ -22,6 +24,6 @@ Mais je vois aussi des éléments de vigilance importants tels que :
 
 1. Le risque de moins penser, de moins valoriser l'effort, de se laisser "assister" sans réfléchir aux conséquences pour nos cerveaux,
 2. Le risque d'une captivité technologique, avec des outils dont l'accès peut nous être retiré à tout moment,
-3. Le risque de la perte de liberté...
+3. Et finalement, le risque de la perte de notre autonomie et de la liberté...
 
-Dans ce contexte, **les choix de société qui seront faits dans les prochaines années me semblent critiques sur ces sujets**, et à moins d'un an d'élections cruciales en France, j’aimerais des débats politiques qui tiennent compte de ces questions, et qui nous proposent de choisir un prochain modèle de société. Mais les personnes qui nous dirigent en ont-elles l'envie et/ou l'intérêt ? Seuls les prochains mois nous le dirons...
+Dans ce contexte, **les choix de société qui seront faits dans les prochaines années me semblent critiques sur ces sujets**, et à moins d'un an d'élections importantes en France, j’aimerais des débats politiques à la hauteur de ces questions, et qui nous proposent de choisir un prochain modèle de société. Mais les personnes qui nous dirigent en ont-elles l'envie et/ou l'intérêt ? Seuls les prochains mois nous le dirons...
