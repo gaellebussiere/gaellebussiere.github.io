@@ -14,7 +14,7 @@ De façon générale, si je dis "oui" à l'utilisation des IA (de toute façon, 
 
 Par exemple, je vois déjà des éléments très positifs tels que :
 
-1. L'opportunité de travailler moins, de ce concentrer uniquement sur les tâches importantes, 
+1. L'opportunité de travailler moins, de se concentrer uniquement sur les tâches importantes, 
 2. L'opportunité d'apprendre plus, en toute autonomie, 
 3. L'opportunité de revenir aux fondamentaux des interactions humaines, de ressentir de la joie et de vivre des moments de partage avec les autres.
 
