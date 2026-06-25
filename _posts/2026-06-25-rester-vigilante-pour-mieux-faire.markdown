@@ -8,7 +8,7 @@ J'écris ce message pour moi. Pour me rappeler qu'entre la personne que je souha
 
 Pour commencer, un peu de contexte. Je sors d'une semaine au cours de laquelle, au travail, je me suis fortement agacée. Avec le recul, je pense que si certaines raisons étaient parfaitement justifiées (en tout cas alignées avec les valeurs que je souhaite porter), d'autres ne l'étaient pas. Et ce "pas" va du "pas totalement" au "totalement pas". Bref, j'ai déraillé et je m'en veux. Beaucoup (pour le totalement pas). 
 
-Mais comme il n'est pas possible de remonter le temps pour changer les choses, je vais essayer de faire la seule chose que je peux faire : analyser et avancer. Ainsi, mon objectif ici n'est pas de raconter les situations mais plutôt d'identifier les éléments qui ont été à l'origine de ces tensions. De les écrire afin de les mémoriser pour autant que possible les éviter à l'avenir...
+Mais comme il n'est pas possible de remonter le temps pour changer les choses, je vais essayer de faire la seule chose que je peux faire : analyser, documenter et avancer. Ainsi, mon objectif ici n'est pas de raconter les situations mais plutôt d'identifier les éléments qui ont été à l'origine de ces tensions. De les écrire afin de les mémoriser pour autant que possible les éviter à l'avenir...
 
 C'est parti.
 
