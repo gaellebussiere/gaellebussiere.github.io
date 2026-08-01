@@ -15,6 +15,8 @@ Mes pensées résultent d'un subtil mélange entre les informations que je reço
 - [Podcast Les Couilles sur la Table](https://www.binge.audio/podcast/les-couilles-sur-la-table)
 - [Podcast C dans l'Air](https://www.france.tv/france-5/c-dans-l-air/)
 - [Podcast Maintenant vous savez](https://originals.bababam.com/maintenant-vous-savez)
+- [Podcast CDTL](https://cdlt.kessel.media/posts)
+- [Podcast Renverver la table](https://victoiretuaillon.substack.com/)
 
 ## Réfléchir son équilibre de vie
 - [Podcast Full Focus](https://fullfocus.co/podcasts/)
