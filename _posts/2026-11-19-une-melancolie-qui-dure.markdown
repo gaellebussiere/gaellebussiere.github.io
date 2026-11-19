@@ -16,7 +16,7 @@ La deuxième est une lassitude au travail. Ma décision de m'arrêter une année
 
 Ce qui m'amène à la troisième cause. Je perds le sentiment d'appartenir à une communauté professionnelle et je me sens en décalage. Les personnes et les situations m'agacent, mais je n'essaie plus de changer quoi que ce soit. « À quoi bon », voilà ce que je me dis intérieurement. En quelque sorte, je renonce…
 
-Alors je reste travailler chez moi, je passe de plus en plus de temps dans mon lit (bon, en hiver, c'est assez classique, il fait froid !), et la joie que j'associais habituellement à ces moments de détente se dilue peu à peu. Il faudrait que je me mobilise, que je me remette en mouvement, mais l'envie, elle, n'est pas là.
+Alors je reste travailler chez moi, je passe de plus en plus de temps dans mon lit (bon, en hiver, c'est assez classique, il fait froid !), mais la joie que j'associais habituellement à ces moments de détente se dilue peu à peu. Il faudrait que je me mobilise, que je me remette en mouvement, mais l'envie, elle, n'est pas là.
 
 Que faire ?
 
